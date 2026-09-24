@@ -1,0 +1,1 @@
+# The-Weak-Black-Hole-Mechanism-for-Galactic-Collisions-Rigorous-Framework-Invari-Baseline-in-GAMA-DR4
